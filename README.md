@@ -14,3 +14,4 @@ Sudah selesai iin
 MANA
 aku liat dimana?
 Disini ajaa, kau bayar kapan?
+sampe kos aku bayar
