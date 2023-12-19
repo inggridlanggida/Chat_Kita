@@ -12,3 +12,4 @@ Vin, kira" bakal selesai gak ya? batas kumpulnya 17.15
 VIN?
 Sudah selesai iin
 MANA
+aku liat dimana?
