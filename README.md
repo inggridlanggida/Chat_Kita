@@ -15,3 +15,4 @@ MANA
 aku liat dimana?
 Disini ajaa, kau bayar kapan?
 sampe kos aku bayar
+Sudahhh iin
