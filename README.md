@@ -10,3 +10,4 @@ Ini lagi dikerjain
 huff, deg"an anjir
 Vin, kira" bakal selesai gak ya? batas kumpulnya 17.15
 VIN?
+Sudah selesai iin
