@@ -17,3 +17,4 @@ Disini ajaa, kau bayar kapan?
 sampe kos aku bayar
 Sudahhh iin
 Didalam repo ini yaa
+_HARI INI UAS,JANGAN LUPA YA VIN!
